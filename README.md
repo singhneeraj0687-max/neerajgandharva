@@ -64,4 +64,4 @@ Senior Flutter & Android Developer with 9+ years of experience building scalable
 9+ Years in Mobile Application Development
 
 ## 📌 Open To Work
-Looking for Senior Flutter Developer Opportunities
+Looking for Senior Flutter & Android Developer Opportunities
